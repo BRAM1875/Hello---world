@@ -1,0 +1,2 @@
+# Hello---world
+Apakah itu proyek Hello – dunia ?  Proyek Hello – dunia adalah sebuah inovasi bisnis, yang akan menemukan cara baru dan mudah tentang kerja di rumah untuk meningkatkan penghasilan. Selain itu, proyek ini akan memberikan peluang untuk mengembangkan karier bisnis, yang belum berkembang. Durasi waktu kerja hanya membutuhkan waktu 6 jam perhari, dan uang akan terus mengalir ke rekening bank Anda.
